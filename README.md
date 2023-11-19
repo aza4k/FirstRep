@@ -13,8 +13,8 @@ With this program it is possible to use the  + - * /  command.
 
 ## 🔗 Links
 
-- [Instagram](#)
+- [Instagram](https://instagram.com/aza4k)
 ## Support
 
-For support, email duysenbaevs1@gmail.com
+For support, email aza4k@gmail.com
 
